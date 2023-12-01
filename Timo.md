@@ -1,37 +1,36 @@
-# Dear timo...
+# Dear Timo Kohorst
 
-oh wait... yes, exactly $Happy$   $Birthday$ $to$ $you!$
+As you embark on a new journey, we would like to extend our most sincere gratitute to your dedicated work and contribution within the SSI department. Its been a delightful time and a pleasure for us to have been sorrounded by your enchanting presence not to mention your inmense knowledge.
 
-# we wish you.....
+# We extend our best wishes to you
 
-Love, money, health, trips, etc etc... the best of the world... endless hapyness, yeah all that... lets go to the important part, continue reading...
+May your path be illuminated with success and fulfillment. We extend our heartfelt best wishes for continued accomplishments and prosperity.
 
-## SWOT analysis of getting close to the 3rd floor:
+## SWOT analysis of leaving us:
 
-Just in case you didnt have enough time to think about it yourself here we present you some facts:
+In the event that you may not have had sufficient time to contemplate this matter independently, we would like to provide you with some pertinent information:
 
 
  |  Strenghts | Weakness  | Opportunities  | Threats  |
 |---|---|---|---|
-| you are earning more money (we hope)  | well, you probably have more debts as well... good luck!  |  you can drink more wine with the excuse that is "good" for your health :p | people are expecting you to act like an... adult... wtf?!      |
-| you are getting wiser... or at least you should... x.x  | you are getting old...  | mmmmm there are no more opportunities... sorry!  | your friends (us) are expecting a big celebration next year   |
-|   |   |   |   |
-
-## Some more wishes...
+| you are earning more money (we hope)  | well, you probably have more debts as well... good luck!  |  new version of yourself with less bugs, more features, and hopefully, a better coffee machine?! | Maybe the coffe is actually not good (?)      |
+| Finally you dont have to fill in CATS anymore!!  | Not Mensa anymore, ALARM!!  | mmmmm there are no more opportunities... sorry!  | You will have to cook or maybe buy food in a more expensive place because there is no Mensa, and then half of your salary will be gone in food which means that probably you should have stayed with us??? think about it!!   |
 
 
-> Ich wünsche dir alles Liebe und Gute zum Geburtstag, bleib gesund und munter - wie schon Shakespeare einst sagte "Solange die 3 noch nicht gewiss, ist man des Feierns noch längst nicht überüss" - in dem Sinne: Nächstes Jahr bist du dran!
-
-Sascha
-> **Hey Rouven!** Wir wünschen dir alles erdenklich Gute zum Geburtstag! Wir hoffen, du hattest heute schon einen schönen Tag und kannst dir mit Janina noch ein schönes Wochenende machen.
-
-Ganz liebe Grüße
-Jule und Johann
+## Some messages about Timo
 
 
-## from your friends who like you very much (most of the time...) 
+> My dearest friend Timo was quite the acquaintance, a humble and diligent fellow, a man of great focus and determination that enriched the lives of the people around him. I send out my deepest gratitude for being fortunate enough to work alongside him and wish him a bright and prosperous future. May the fates align in our favor for a reunion, even if only at the local tavern across the street.
 
-Johanna, Jule, Johann, Viola, Fanny, Fynn, Aaron, Sascha, Gabi.
+*Samuel*
+> The individual in question exhibited a consistent inclination towards seeking and inquiring about confectionery, particularly chocolates. His frequent expressions of interest in acquiring such indulgences contribute to an observable pattern of preference for this specific type of treat within the professional environment. I wish for him that he can assure himself an trustable source of such sweets in the future.
+
+*Gabi*
+
+
+## from your Colleagues who like you very much... 
+
+Copy and Paste here the whole SSI department!
 
 
 
