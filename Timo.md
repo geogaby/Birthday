@@ -27,6 +27,9 @@ In the event that you may not have had sufficient time to contemplate this matte
 
 *Gabi*
 
+> I would like to say that Mr. Timo is an outstanding colleague. Having had the pleasure of working, eating in Mensa and meeting in the corridor with him for the past six months, I can attest to his exemplary work ethic, reliability, and dedication to his responsibilities. His combination of skills, work ethic, values and blue eyes makes him a standout colleague. I have no doubt that he is embarking on a new and exciting journey. I wish him to always enjoy each day, bring joy to his loved ones, and continue his path of fulfillment in all desired areas.
+
+*Anna*
 
 ## from your Colleagues who like you very much... 
 
